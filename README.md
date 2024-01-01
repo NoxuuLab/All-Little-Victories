@@ -1,6 +1,9 @@
 # ALL THE SMALL VICTORIES
 <br>
-This project was created for the course on Digital Publishing, run by Isaac Pante at the University of Lausanne (UNIL).
+---
+
+A literary anthology and responsive website that deals with the concept of the mirror. This project was created for the course on **Digital Publishing**, run by [Isaac Pante] at the [University of Lausanne] (UNIL).
+
 <br><br>
 
 **Author**: _Marcela Havrilova_ (<marcela.havrilova@unil.ch>)
@@ -10,7 +13,16 @@ This project was created for the course on Digital Publishing, run by Isaac Pant
 ## Description
 
 
-RESSOURCES: <br>
+
+## Objectives
+
+
+## Acknowledgements
+
+Thanks to [Isaac Pante] for his help in defining the objectives of this project and the scope of the site.
+
+
+## References:
 Surviving Russia’s ‘Filtration Camps’: <br>
 https://www.nytimes.com/video/world/europe/100000008396333/russia-filtration-camps.html
 <br>
