@@ -32,3 +32,7 @@ UKRAINE’S STOLEN CHILDREN<br>
 https://www.nytimes.com/interactive/2023/12/26/world/europe/ukraine-war-children-russia.html
 <br>
 <br>
+Child victims in Ukraine – can the trauma be cured?<br>
+https://www.swissinfo.ch/eng/child-victims-in-ukraine---can-the-trauma-be-cured-/48736074
+<br>
+<br>
