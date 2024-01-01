@@ -2,13 +2,13 @@
 <br>
 ---
 
-A literary anthology and responsive website that deals with the concept of the mirror. This project was created for the course on **Digital Publishing**, run by [Isaac Pante] at the [University of Lausanne] (UNIL).
+A literary publication with twine the story about ukainian stolen children and filtration camps.  This project was created for the course on **Digital Publishing**, run by [Isaac Pante] at the [University of Lausanne] (UNIL).
 
 <br><br>
 
 **Author**: _Marcela Havrilova_ (<marcela.havrilova@unil.ch>)
 
-**Date**: _Autumn semester, 2021_
+**Date**: _Autumn semester, 2023_
 
 ## Description
 
