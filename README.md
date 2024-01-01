@@ -2,7 +2,8 @@
 <br>
 ---
 
-A literary publication with twine the story about ukainian stolen children and filtration camps.  This project was created for the course on **Digital Publishing**, run by [Isaac Pante] at the [University of Lausanne] (UNIL).
+A literary publication with twine the story about ukainian stolen children and filtration camps.  This project was created for the course on **Digital Publishing**, run by [Isaac Pante](https://github.com/ipante) at the [University of Lausanne](https://www.unil.ch/) (UNIL).
+
 
 <br><br>
 
@@ -25,6 +26,10 @@ Thanks to [Isaac Pante] for his help in defining the objectives of this project 
 ## References:
 Surviving Russia’s ‘Filtration Camps’: <br>
 https://www.nytimes.com/video/world/europe/100000008396333/russia-filtration-camps.html
+<br>
+<br>
+CHILDREN OF WAR<br>
+https://childrenofwar.gov.ua/en/
 <br>
 <br>
 
