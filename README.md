@@ -2,8 +2,8 @@
 <br>
 This project was created for the course on Digital Publishing, run by Isaac Pante at the University of Lausanne (UNIL).
 <br><br>
-**Author**: _Philippa Payne_ (<philippa.payne@unil.ch>)
 
+**Author**: _Marcela Havrilova_ (<marcela.havrilova@unil.ch>)
 **Date**: _Autumn semester, 2021_
 
 ## Description
