@@ -36,8 +36,11 @@ Child victims in Ukraine – can the trauma be cured?<br>
 https://www.swissinfo.ch/eng/child-victims-in-ukraine---can-the-trauma-be-cured-/48736074
 <br>
 <br>
-The Stolen Children of Ukraine | ARTE.tv Documentary
+The Stolen Children of Ukraine | ARTE.tv Documentary<br>
 https://www.youtube.com/watch?v=f5YKzKxue3Y
+<br>
+<br>
+
 
 
 
