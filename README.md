@@ -4,6 +4,7 @@ This project was created for the course on Digital Publishing, run by Isaac Pant
 <br><br>
 
 **Author**: _Marcela Havrilova_ (<marcela.havrilova@unil.ch>)
+
 **Date**: _Autumn semester, 2021_
 
 ## Description
