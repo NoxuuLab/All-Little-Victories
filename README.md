@@ -45,7 +45,14 @@ The Stolen Children of Ukraine | ARTE.tv Documentary<br>
 https://www.youtube.com/watch?v=f5YKzKxue3Y
 <br>
 <br>
-
-
+Wikipedia: War crimes in the Russian invasion of Ukraine<br>
+https://en.wikipedia.org/wiki/War_crimes_in_the_Russian_invasion_of_Ukraine
+<br><br>
+Wikipedia: Child abductions in the Russo-Ukrainian War<br>
+https://en.m.wikipedia.org/wiki/Child_abductions_in_the_Russo-Ukrainian_War#
+<br><br>
+Wikipedia: Kidnapping of children by Nazi Germany <br>
+https://en.wikipedia.org/wiki/Kidnapping_of_children_by_Nazi_Germany
+<br><br>
 
 
