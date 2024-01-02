@@ -35,8 +35,11 @@ https://www.nytimes.com/2022/10/22/world/europe/ukraine-children-russia-adoption
 
 The New York Times: UKRAINE’S STOLEN CHILDREN<br>
 https://www.nytimes.com/interactive/2023/12/26/world/europe/ukraine-war-children-russia.html
-<br>
-<br>
+<br><br>
+
+The New York Times: The Russians Took Their Children. These Mothers Went and Got Them Back. <br>
+https://www.nytimes.com/2023/04/08/world/europe/ukrainian-children-mothers-russia.html
+<br><br>
 
 CHILDREN OF WAR<br>
 https://childrenofwar.gov.ua/en/
