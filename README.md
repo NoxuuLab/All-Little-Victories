@@ -52,6 +52,14 @@ Human Right Watch: Ukraine: War’s Toll on Schools, Children’s Future <br>
 https://www.hrw.org/news/2023/11/09/ukraine-wars-toll-schools-childrens-future
 <br><br>
 
+Human Right Watch: Ukraine: Perils of War for Children in Institutions <br>
+https://www.hrw.org/news/2023/03/13/ukraine-perils-war-children-institutions
+<br><br>
+
+Human Right Watch: “We Had No Choice”: “Filtration” and the Crime of Forcibly Transferring Ukrainian Civilians to Russia<br>
+https://www.hrw.org/report/2022/09/01/we-had-no-choice/filtration-and-crime-forcibly-transferring-ukrainian-civilians
+<br><br>
+
 Children of war<br>
 https://childrenofwar.gov.ua/en/stories-of-children/
 <br>
