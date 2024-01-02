@@ -73,4 +73,6 @@ https://en.wikipedia.org/wiki/Kidnapping_of_children_by_Nazi_Germany
 Wikipedia: Lebensborn <br>
 https://en.wikipedia.org/wiki/Lebensborn
 <br><br>
-
+The Guardian: Torment of the Abba star with a Nazi father <br>
+https://www.theguardian.com/world/2002/jun/30/kateconnolly.theobserver
+<br><br>
