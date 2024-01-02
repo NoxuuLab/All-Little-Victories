@@ -60,6 +60,10 @@ Human Right Watch: “We Had No Choice”: “Filtration” and the Crime of For
 https://www.hrw.org/report/2022/09/01/we-had-no-choice/filtration-and-crime-forcibly-transferring-ukrainian-civilians
 <br><br>
 
+Euronews: Life on the margins: The fate of Ukraine's forcibly deported children<br>
+https://www.euronews.com/2023/06/07/life-on-the-margins-the-fate-of-ukraines-forcibly-deported-children
+<br><br>
+
 Children of war<br>
 https://childrenofwar.gov.ua/en/stories-of-children/
 <br>
