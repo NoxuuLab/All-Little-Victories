@@ -64,15 +64,18 @@ Euronews: Life on the margins: The fate of Ukraine's forcibly deported children<
 https://www.euronews.com/2023/06/07/life-on-the-margins-the-fate-of-ukraines-forcibly-deported-children
 <br><br>
 
+Washington Post: Why Russia may be taking Ukrainian children <br>
+https://www.washingtonpost.com/politics/2022/06/14/ukraine-kidnaped-children-russia/
+<br><br>
+
 Children of war<br>
 https://childrenofwar.gov.ua/en/stories-of-children/
-<br>
-<br>
+<br><br>
 
 Swiss Info: Child victims in Ukraine – can the trauma be cured?<br>
 https://www.swissinfo.ch/eng/child-victims-in-ukraine---can-the-trauma-be-cured-/48736074
-<br>
-<br>
+<br><br>
+
 ARTE.tv Documentary: The Stolen Children of Ukraine <br>
 https://www.youtube.com/watch?v=f5YKzKxue3Y
 <br>
