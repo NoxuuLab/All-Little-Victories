@@ -44,6 +44,10 @@ The New York Times: The Russians Took Their Children. These Mothers Went and Got
 https://www.nytimes.com/2023/04/08/world/europe/ukrainian-children-mothers-russia.html
 <br><br>
 
+Reuters: Ukraine says ICC arrest warrant for Putin helped return deported kids <br>
+https://www.reuters.com/world/europe/ukraine-says-icc-arrest-warrant-putin-helped-return-deported-kids-2023-12-08/
+<br><br>
+
 Children of war<br>
 https://childrenofwar.gov.ua/en/stories-of-children/
 <br>
