@@ -85,6 +85,15 @@ Children of war<br>
 https://childrenofwar.gov.ua/en/stories-of-children/
 <br><br>
 
+The Guardian: Kyiv accuses Moscow of mass abduction of Ukrainian children <br>
+https://amp.theguardian.com/world/2022/aug/23/kyiv-accuses-moscow-of-mass-abduction-of-ukrainian-children
+<br><br>
+
+
+The Guardian:‘We had to hide them’: how Ukraine’s ‘kidnapped’ children led to Vladimir Putin’s arrest warrant<br>
+https://amp.theguardian.com/world/2023/mar/18/how-ukraine-kidnapped-children-led-to-vladimir-putins-arrest-warrant-russia
+<br><br>
+
 Swiss Info: Child victims in Ukraine – can the trauma be cured?<br>
 https://www.swissinfo.ch/eng/child-victims-in-ukraine---can-the-trauma-be-cured-/48736074
 <br><br>
