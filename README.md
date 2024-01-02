@@ -48,6 +48,10 @@ Reuters: Ukraine says ICC arrest warrant for Putin helped return deported kids <
 https://www.reuters.com/world/europe/ukraine-says-icc-arrest-warrant-putin-helped-return-deported-kids-2023-12-08/
 <br><br>
 
+Human Right Watch: Ukraine: War’s Toll on Schools, Children’s Future <br>
+https://www.hrw.org/news/2023/11/09/ukraine-wars-toll-schools-childrens-future
+<br><br>
+
 Children of war<br>
 https://childrenofwar.gov.ua/en/stories-of-children/
 <br>
