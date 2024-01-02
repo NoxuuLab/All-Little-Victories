@@ -64,6 +64,10 @@ Euronews: Life on the margins: The fate of Ukraine's forcibly deported children<
 https://www.euronews.com/2023/06/07/life-on-the-margins-the-fate-of-ukraines-forcibly-deported-children
 <br><br>
 
+European Parliament: Russia's war on Ukraine: Forcibly displaced Ukrainian children <br>
+https://www.europarl.europa.eu/RegData/etudes/BRIE/2023/747093/EPRS_BRI(2023)747093_EN.pdf
+<br><br>
+
 Washington Post: Why Russia may be taking Ukrainian children <br>
 https://www.washingtonpost.com/politics/2022/06/14/ukraine-kidnaped-children-russia/
 <br><br>
