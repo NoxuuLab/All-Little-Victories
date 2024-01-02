@@ -76,6 +76,10 @@ Fortune: The sad legacy of Russian orphans lies behind Putin’s troops kidnappi
 https://fortune.com/europe/2023/07/07/why-is-russia-kidnapping-ukrainian-children-vladimir-putin-soviet-book-author/
 <br><br>
 
+AlJazeera: Ukraine calls for return of ‘abducted’ children as more arrive in Belarus
+https://www.aljazeera.com/news/2023/9/20/ukraine-calls-for-return-of-abducted-children-as-more-arrive-in-belarus 
+<br><br>
+
 
 Children of war<br>
 https://childrenofwar.gov.ua/en/stories-of-children/
