@@ -72,6 +72,11 @@ Washington Post: Why Russia may be taking Ukrainian children <br>
 https://www.washingtonpost.com/politics/2022/06/14/ukraine-kidnaped-children-russia/
 <br><br>
 
+Fortune: The sad legacy of Russian orphans lies behind Putin’s troops kidnapping tens of thousands of Ukrainian children <br>
+https://fortune.com/europe/2023/07/07/why-is-russia-kidnapping-ukrainian-children-vladimir-putin-soviet-book-author/
+<br><br>
+
+
 Children of war<br>
 https://childrenofwar.gov.ua/en/stories-of-children/
 <br><br>
