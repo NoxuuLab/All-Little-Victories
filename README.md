@@ -80,6 +80,13 @@ AlJazeera: Ukraine calls for return of ‘abducted’ children as more arrive in
 https://www.aljazeera.com/news/2023/9/20/ukraine-calls-for-return-of-abducted-children-as-more-arrive-in-belarus 
 <br><br>
 
+Associated Press: How Moscow grabs Ukrainian kids and makes them Russians <br>
+https://apnews.com/article/ukrainian-children-russia-7493cb22c9086c6293c1ac7986d85ef6
+<br><br>
+
+PBS NewsHour: Ukrainian mothers take extreme measures to rescue kidnapped children <br>
+https://www.youtube.com/watch?v=-zXnjPJuY9Q
+<br><br>
 
 Children of war<br>
 https://childrenofwar.gov.ua/en/stories-of-children/
@@ -92,6 +99,10 @@ https://amp.theguardian.com/world/2022/aug/23/kyiv-accuses-moscow-of-mass-abduct
 
 The Guardian:‘We had to hide them’: how Ukraine’s ‘kidnapped’ children led to Vladimir Putin’s arrest warrant<br>
 https://amp.theguardian.com/world/2023/mar/18/how-ukraine-kidnapped-children-led-to-vladimir-putins-arrest-warrant-russia
+<br><br>
+
+The Guardian:‘We had to hide them’: Filtration and forced deportation: Mariupol survivors on the lasting terrors of Russia’s assault<br>
+https://amp.theguardian.com/world/2022/may/26/filtration-and-forced-deportation-mariupol-survivors-on-the-lasting-terrors-of-russias-assault
 <br><br>
 
 Swiss Info: Child victims in Ukraine – can the trauma be cured?<br>
