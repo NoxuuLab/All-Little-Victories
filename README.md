@@ -20,7 +20,7 @@ This project was created for the course on **Digital Publishing**, run by [Isaac
 
 "All Little Victories" is an digital storytelling project aimed at raising awareness of the human impact of geopolitical conflicts, with a specific focus on the experiences of children in war zones. This project is rooted in the following objectives:
 
-**Awareness and Empathy:** To shed light on the real-world implications of geopolitical events, particularly their effects on children. By providing an immersive experience combining text, images, and sounds, the project aims to foster empathy and understanding among users.
+**Awareness and Empathy:** To shed light on the real-world implications of geopolitical events, particularly their effects on children. The project aims to foster empathy and understanding among users.
 
 **Documentary Approach:** While the project is fictional, it draws heavily from real-life events and stories. Information and narratives are meticulously researched and sourced from traditional newspapers and channels. This approach ensures a grounded and authentic representation of the experiences of children affected by war. All the inspiratins are noter under references
 
