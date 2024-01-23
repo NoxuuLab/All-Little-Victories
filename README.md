@@ -1,4 +1,4 @@
-# ALL THE SMALL VICTORIES
+# All Little Victories
 
 
 
